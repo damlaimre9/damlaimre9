@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Damla İmre and I am a freshman at Bilkent University.
+- 👋 Hi, I’m Damla İmre and I am a junior student at Bilkent University.
